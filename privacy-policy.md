@@ -42,7 +42,7 @@ We may update this privacy policy periodically based on product updates or chang
 
 ## 7. Contact Us
 If you have any questions regarding this privacy policy or other related issues, please contact us:  
-📧 **Email**: your-email@example.com
+📧 **Email**: theydonotcare31@gmail.com
 
 ---
 
