@@ -1,4 +1,4 @@
-# Privacy Policy
+# AtomicHabits APP Privacy Policy
 
 **Last Updated: March 9, 2025**  
 
