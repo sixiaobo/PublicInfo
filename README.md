@@ -1,4 +1,4 @@
-# 原子习惯(AtomicHabits)APP 隐私政策（Privacy Policy）
+# 原子习惯(AtomicHabits)APP 隐私政策
 
 **最近更新日期：2025 年 3 月 9 日**  
 
